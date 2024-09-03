@@ -1,2 +1,2 @@
-# in
+# Instagram
 https://www.instagram.com/furiyaai/
